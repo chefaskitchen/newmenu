@@ -12,3 +12,5 @@ Beef Ball (12pcs/tray) - P 250/tray
 
 
 Radish Cake - P 150/tray
+
+PROMO: Buy 10 trays + 1 tray for free of the same item
